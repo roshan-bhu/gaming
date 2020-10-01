@@ -1,2 +1,2 @@
-# gaming
-Pubg mobile gaming and clash of clans gaming
+# Gaming
+Pubg mobile and clash of clans gaming
